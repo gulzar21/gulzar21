@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a Government Recruitment Portal.<br>I'm look to collaborate on AI projects.  
+Developer | Educator | Instructor | Traveller |<br>Currently working on a Government Recruitment Portal.<br>I'm look to collaborate on AI ML projects.  
 
 
 ## 🌐 Socials:
