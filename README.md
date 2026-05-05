@@ -1,5 +1,5 @@
 # 💫 About Me:
-Developer | Educator | Instructor | Traveller |<br>Currently working as a developer.<br>I'm looking to collaborate on AI ML projects.  
+Developer | Educator | Instructor | Traveller |<br>Currently working as developer.<br>I'm looking to collaborate on AI ML projects.  
 
 
 ## 🌐 Socials:
