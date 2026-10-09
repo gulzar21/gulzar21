@@ -1,5 +1,5 @@
 # 💫 About Me:
-Developer | Educator | Instructor | Traveller |<br>Currently working as developer.<br>I'm looking to collaboration in  projects.  
+Software Developer | Educator | Instructor |<br>Currently working as developer.<br>I'm looking to collaboration in  projects.  
 
 
 ## 🌐 Socials:
